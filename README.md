@@ -19,4 +19,4 @@
 ## Partners
 
 * [卡酷兒 Carku](https://www.car-ku.com/)
-* [OUXI](https://ouxi.us/)
+* [华拓明通科技 OUXI](https://ouxi.us/)
