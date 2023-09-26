@@ -12,4 +12,8 @@
 | 糧食 | 豬肉 | n/a | n/a | $2,688 | n/a |
 | 礦 | 稀土 | n/a | n/a | $60m | n/a |
 
-\*\* 以上報價為估價，如果有貨源或者採購，請郵件 [dkwholesale2020@gmail.com](mailto:dkwholesale2020@gmail.com)
+\*\* 以上報價為估價，如果有貨源或者採購，請聯繫
+
+Sam Yang  
+WeChat: M674489962  
+email: [dkwholesale2020@gmail.com](mailto:dkwholesale2020@gmail.com) 
