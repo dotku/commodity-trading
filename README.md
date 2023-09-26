@@ -16,10 +16,7 @@
 
 \*\* 以上報價為估價，如果有貨源或者採購，請聯繫
 
-Sam Yang  
-WeChat: M674489962  
-email: [dkwholesale2020@gmail.com](mailto:dkwholesale2020@gmail.com) 
-
 ## Partners
 
 * [卡酷兒 Carku](https://www.car-ku.com/)
+* [OUXI](https://ouxi.us/)
