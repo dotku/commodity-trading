@@ -20,4 +20,4 @@ email: [dkwholesale2020@gmail.com](mailto:dkwholesale2020@gmail.com)
 
 ## Partners
 
-* [Carku](https://www.car-ku.com/)
+* [卡酷兒 Carku](https://www.car-ku.com/)
