@@ -10,6 +10,6 @@
 | 糧食 | 白糖 | 巴西 | $300 | $600 | $1000 |
 | 糧食 | 玉米 | n/a | n/a | n/a | n/a |
 | 糧食 | 豬肉 | n/a | n/a | $2,688 | n/a |
-| 礦 | 稀土 | n/a | n/a | $380m | n/a |
+| 礦 | 稀土 | n/a | n/a | $60m | n/a |
 
 \*\* 以上報價為估價，如果有貨源或者採購，請郵件 [dkwholesale2020@gmail.com](mailto:dkwholesale2020@gmail.com)
