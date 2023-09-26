@@ -9,4 +9,4 @@
 | --- | --- | --- | --- | --- |
 | 白糖 | 巴西 | $300 | $600 | $1000 |
 
-\*\* 以上報價為估價，如果有貨源或者採購，請郵件 dkwholesale2020@gmail.com
+\*\* 以上報價為估價，如果有貨源或者採購，請郵件 [dkwholesale2020@gmail.com](mailto:dkwholesale2020@gmail.com)
