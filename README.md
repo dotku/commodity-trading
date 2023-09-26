@@ -20,3 +20,4 @@
 
 * [卡酷兒 Carku](https://www.car-ku.com/)
 * [华拓明通科技 OUXI](https://ouxi.us/)
+* [徽商集團](http://www.huishang.com.cn/)
